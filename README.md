@@ -4,7 +4,6 @@
 
 **Nurbolat Kayrbolatov**
 
-**Aidyn Marat**
 
 **Introduction:**
 
